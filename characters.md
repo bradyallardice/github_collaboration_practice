@@ -3,6 +3,8 @@
 ## 1. Dr. Prudence Wexley-Thorne
 The keynote speaker who has given the same talk for fifteen years, each time claiming it's "brand new research." Refuses to use a microphone because "the acoustics of true scholarship need no amplification." Cites herself 47 times per talk.
 
+The keynote speaker arrived twenty minutes late without warning, launching immediately into her presentation without apology. Refusing the offered microphone—claiming her decades of teaching required no amplification—she demanded the air conditioning be shut off, complaining of the cold while the audience began to sweat visibly. For fifty minutes instead of her allocated thirty, she droned through slides of data from her 2010 survey, citing her own work repeatedly as if presenting groundbreaking new research, each citation reinforcing the same tired conclusions she'd delivered for the past fifteen years. By minute thirty, the audience had begun openly checking their watches; by minute forty-five, they sat in collective misery—standing at the back, grimacing, some with their heads in their hands—trapped by academic politeness and the unspoken rule that you cannot simply flee a keynote address. When she finally finished at 10:50, the audience evacuated like survivors fleeing a disaster, desperate to escape before she could begin a Q&A.
+
 ## 2. Marcus "Three Questions" Halberstadt
 The audience member who, during every Q&A, begins with "This is more of a comment than a question..." and then delivers a twelve-minute monologue that ends with three unrelated questions. Always sits in the front row.
 
