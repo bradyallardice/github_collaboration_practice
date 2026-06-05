@@ -1,25 +1,22 @@
-# Characters for The Conference from Hell
+# Characters for The Department Mouse
 
-## 1. Dr. Prudence Wexley-Thorne
-The keynote speaker who has given the same talk for fifteen years, each time claiming it's "brand new research." Refuses to use a microphone because "the acoustics of true scholarship need no amplification." Cites herself 47 times per talk.
+## 1. The Mouse
+A highly literate mouse of unknown origin who has been systematically stealing specific items from the department: a single footnote clipped from a printed article, the letter opener from the chair's desk, three index cards from the seminar room, a red pen (uncapped). Has clearly read widely and has a plan. No one has seen it directly. It is known only by what it takes.
 
-## 2. Marcus "Three Questions" Halberstadt
-The audience member who, during every Q&A, begins with "This is more of a comment than a question..." and then delivers a twelve-minute monologue that ends with three unrelated questions. Always sits in the front row.
+## 2. Professor Anneliese Drumm
+The department chair who first noticed something was wrong when her copy of *The Order of Things* disappeared from her office shelf — but only volume one. Foucault without the resolution. She is not sleeping well. She has begun locking her door, which she has never done in twenty years.
 
-## 3. Bethany Crisp
-The junior scholar whose poster is wedged between the coffee station and the restroom. Has not been visited in six hours. Has snacks and is becoming unhinged. Will corner you if you make eye contact.
+## 3. Dr. Tobias Wren
+The bibliographer and unofficial keeper of the department library. He catalogues what has gone missing with the calm of a man who has been waiting for something like this to happen. Maintains a running log in a leather notebook. Refers to the thief, with evident respect, as "our colleague."
 
-## 4. Professor Reginald Pemberton-Crane
-The discussant who has clearly not read any of the papers on the panel. Opens with "These papers are all doing very different things..." and then pivots to his own forthcoming book for the next twenty minutes.
+## 4. Gemma Fitch
+Third-year PhD student who claims to have seen it. Says it was reading the fire safety placard near the mailboxes. No one believes her. She has started leaving out pages of her dissertation draft. They are being taken. She considers this peer review.
 
-## 5. Tamsin Quill
-The conference organizer running on three hours of sleep and cold brew. Has a clipboard, a walkie-talkie, and the thousand-yard stare of someone who just learned the catering company went bankrupt an hour before the reception.
+## 5. Professor Whitfield Orr
+The seminar convener who is privately convinced the mouse is assembling an argument. Points out that the stolen items — if you lay them out — suggest a coherent intellectual position. Has prepared a chart. His colleagues find this upsetting.
 
-## 6. Dr. Edmund Falkworth
-The senior scholar who insists every methodological debate was already settled in 1987 by a paper "everyone should have read by now." Will not name the paper. Scoffs audibly during graduate student presentations.
+## 6. Janet Soo
+The department administrator who simply wants it gone. Has called Facilities twice. Has been told Facilities does not handle "unusual wildlife situations." Is now handling it herself. Has read nothing into the pattern. Does not intend to.
 
-## 7. Priya "Networking" Shah
-Has business cards laminated. Has a pitch. Has followed you from the lobby to the panel to the bathroom. Somehow knows your advisor. Has already added you on six platforms you didn't know existed.
-
-## 8. Gerald the AV Guy
-Stoic, bearded, summoned only in moments of technological crisis. The projector will not connect. The clicker has died. The microphone feeds back. Gerald arrives. Gerald leaves. No one knows Gerald's last name.
+## 7. The Mouse's Nest (offstage)
+No one has found it. But someone — probably Wren — suspects it is somewhere in the building, dense with text, carefully arranged, building toward something. What it is building toward is the question around which the story turns.
