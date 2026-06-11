@@ -1,5 +1,3 @@
-# Chapter 5
+# Chapter 5: The Mouse Sends Thank-Yous
 
-<!-- Replace this comment with your chapter.
-     Feature at least one of the named characters (see README.md).
-     Length doesn't matter. Five minutes. Write, push, merge, move on. -->
+The notes started showing up on desks. Professor Lin got a photo of her green notebook with *Nice work, you're the only one paying attention* scrawled below. Dev's spreadsheet mysteriously filled with entries he'd missed, each one helpfully flagged. Marisol's banana came back shiny and perfect with a sticky note: *Thanks for leaving the crumbs.* Okonkwo found her glasses, cleaned, beside a quote from Hobbes about the state of nature. The mouse wasn't stealing anymore—it was having a conversation. And everyone realised, at the same moment, that the mouse was actually funny. Which meant they were in real trouble now.
